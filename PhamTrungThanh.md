@@ -1,1 +1,1 @@
-# phamtrungthanh
+Hello, my name is Trung Thanh . I’m 18 years old and I’m in grade 12. I was born and grew up in Tan An city. I feel really honored for being chosen to be the best student of our class in this semester. I promise to study harder and harder to accomplish your believe and also help others in studying.
